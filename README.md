@@ -1,2 +1,2 @@
 # Story
-Once upon a time 
+He then yelled "NOBODY EXPECTS THE SPANISH INQUISITION!"
