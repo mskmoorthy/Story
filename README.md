@@ -1,3 +1,22 @@
 # Story
 
-We were somewhere around Barstow, on the edge of the deset
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Maybe if I skip a bunch of lines?
